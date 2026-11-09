@@ -1,4 +1,3 @@
-# Hi, I'm Ebrahim Magdy 👋
 
 ### Computer Science Student | Aspiring AI & Machine Learning Engineer
 
