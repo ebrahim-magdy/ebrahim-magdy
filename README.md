@@ -53,10 +53,10 @@ More projects coming soon!
 
 ---
 
-## 📫 Connect With Me
+##  Connect With Me
 
 - LinkedIn: [Ebrahim Magdy](https://www.linkedin.com/in/ebrahim-magdy/)
 
 ---
 
-⭐ Thanks for visiting my profile!
+ Thanks for visiting my profile!
